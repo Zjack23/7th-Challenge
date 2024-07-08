@@ -1,1 +1,1 @@
-# 7th-Challenge
+7th Challenge
