@@ -39,7 +39,7 @@ N/A
 
 For any questions, please reach out via:
 
-- GitHub: [zjack23](https://github.com/zjack23)
+- GitHub: [zjack23](https://github.com/zjack23), [RoxD90](https://github.com/RoxD90)
 - Email: [zjack1298@gmail.com](mailto:zjack1298@gmail.com)
 
 [Untitled Video July 14, 2024 11_47 PM.webm](https://github.com/user-attachments/assets/436fa90d-e6a4-4b84-a7df-6fbf7d1e2faf)
